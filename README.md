@@ -24,5 +24,5 @@
 
 ## 📫 Contáctame
 
-📧 celeste.reza@uaem.mx  
+📧 celestereza1@gmail.com 
 🔗 [Mi portafolio en Google Drive](https://drive.google.com/drive/folders/1A4uPWIpIt3F69QypElVtWX1Adr_wxVuE)
